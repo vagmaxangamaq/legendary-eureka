@@ -1,0 +1,1 @@
+In the 1940s, the FCC assigned television's Channel 1 to mobile Services(two-way radios in taxicabs, for instance) but did not re-number theotherchannel assignments. That is why your TV set has channels 2 and up, butnochannel 1.
