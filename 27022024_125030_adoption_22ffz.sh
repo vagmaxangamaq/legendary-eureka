@@ -1,0 +1,1 @@
+The name "cranberry" comes from German and Dutch settlers. The berry was intially called "crane berry." The reason it was called this was because when the flowers bloom, the petals of the flowers twist backwards and look very much like the head of a crane. Eventually the name was shortened down to be "cranberry."
